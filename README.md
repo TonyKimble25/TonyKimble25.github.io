@@ -3,3 +3,4 @@
 - [https://www.youtube.com/@TonyKimble25](https://www.youtube.com/@TonyKimble25)
 - [https://medium.com/@TonyKimble25](https://medium.com/@TonyKimble25)
 - [https://www.quora.com/profile/Tony-Kimble-25](https://www.quora.com/profile/Tony-Kimble-25)
+-[ https://medium.com/@TonyKimble25/the-challenges-of-aaa-games-on-mobile-resident-evil-7s-ios-performance-8c49bc06d19f](https://medium.com/@TonyKimble25/the-challenges-of-aaa-games-on-mobile-resident-evil-7s-ios-performance-8c49bc06d19f)
