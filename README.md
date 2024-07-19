@@ -1,0 +1,5 @@
+- [https://x.com/TonyKimble25](https://x.com/TonyKimble25)
+- [https://www.reddit.com/user/Time_Kiwi_9561/](https://www.reddit.com/user/Time_Kiwi_9561/)
+- [https://www.youtube.com/@TonyKimble25](https://www.youtube.com/@TonyKimble25)
+- [https://medium.com/@TonyKimble25](https://medium.com/@TonyKimble25)
+- [https://www.quora.com/profile/Tony-Kimble-25](https://www.quora.com/profile/Tony-Kimble-25)
